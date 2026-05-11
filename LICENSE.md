@@ -1,4 +1,4 @@
-
+Get the ultimate Pixelmator Pro for macOS plugin with Pixelmator Pro for macOS elite Plugin - vector tools and plugin support. Featuring vector tools and plugin support, it's the
 
 
 
